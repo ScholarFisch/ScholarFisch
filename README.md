@@ -1,4 +1,4 @@
-<a target="_blank"><img src="https://cdn.discordapp.com/attachments/1320996377412505640/1336271964355952701/Untitled188_20250204174728.png?ex=67a333bf&is=67a1e23f&hm=fd624b61db5c3295144962fa8a324c093a8d91b0e836b5f6ce9cc8b15736ee59&" >
+<a target="_blank"><img src="https://cdn.discordapp.com/attachments/1320996377412505640/1337350403183874079/ezgif-7-99b950baed.gif?ex=67a7201e&is=67a5ce9e&hm=e889d9551e5f9db2495a7152d6e0d83f2871f86799a66106c339f3f24d832d94&" >
 
  --    SCHOLARFISCH'S INTRO  .ᐟ   -- 
 
