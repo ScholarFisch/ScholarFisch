@@ -1,6 +1,4 @@
-<a target="_blank"><img src="https://cdn.discordapp.com/attachments/1320996377412505640/1337350403183874079/ezgif-7-99b950baed.gif?ex=67a7201e&is=67a5ce9e&hm=e889d9551e5f9db2495a7152d6e0d83f2871f86799a66106c339f3f24d832d94&" >
-
- --    SCHOLARFISCH'S INTRO  .ᐟ   -- 
+--    SCHOLARFISCH'S INTRO  .ᐟ   -- 
 
 c + h ( plus kissing and booping ) is always on, feel  free to do so!! ^_^ I don't like being hidden unless it's my friends or my friends' friends or something.. 
 
