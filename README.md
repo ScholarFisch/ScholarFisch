@@ -19,4 +19,4 @@ __Faith:The Unholy Trinity__, OMORI, __The Stanley Parable__, SCP, PJSK, Genshin
 Discord // Murkdove
 
 Ponies you'll see me as (mainly): John Ward (F:TUT), Ludwig Behm (All Quiet On The Western Front), Shadow Mik Cookie (CRK), Angus (Field of Sunflowers : Webtoon) 
-<a target="_blank"><img src="https://64.media.tumblr.com/cfda4fc42710eea11c6eb67e56b96400/35378aaccd6151fe-f8/s1280x1920/5e961238cdd9c55c49c746f02d3b84ea46304f7d.png"></a>
+<a target="_blank"><img src="https://media.discordapp.net/attachments/1320996377412505640/1380452180846182501/Untitled440_20250606112615.png?ex=6843edc7&is=68429c47&hm=cb958eb97a06f6a068df64cfbb3cb4e8a06bf32ae06ff095adccaceb4b46fc6d&=&format=webp&quality=lossless&width=1579&height=837"></a>
