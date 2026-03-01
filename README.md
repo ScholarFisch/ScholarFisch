@@ -4,7 +4,7 @@ i barely int first, i shy away a lot, please understand .ᐟ
 
 ────────────────────────────────
 
-Call me Cesar or Thomas ( Or any other name you remember me as ) ^_^
+Call me Cesar or Nikolaus ( Or any other name you remember me as ) ^_^
 I have *some* typing quirks , for example , misspells that i wont correct unless you literally cant understand me ,, I mostly type in all caps 
 __he/him__ _strictly_, transmasc, taken
 
@@ -14,5 +14,5 @@ __he/him__ _strictly_, transmasc, taken
 __Team Fortress: 2__, __Faith:The Unholy Trinity__, __ULTRAKILL__, __Die of Death__, __Dead Ahead__, __Centaura__, State SMP, Grace, Project Untote  + **MANY** OTHERS
 
 
-discord // auxil1us
+discord // surgeonofsalads
 
